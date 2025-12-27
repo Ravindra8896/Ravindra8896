@@ -1,5 +1,5 @@
 # 💫 About Me:
-I am currently working in Adda247 as Service Excellence Specialist<br>and upskilling my career and redirecting to data Scientist and data Analytics with AI<br>I am looking for the help to become an Data Scientist/ Data Analyst<br>I have completed my bachelor's  in Computer Applications<br>
+I am currently working in Adda247 as Service Excellence Specialist<br>and upskilling and redirecting my career to "Data Scientist" or "Data Analytics with AI"<br>I am looking for the help to become an Data Scientist/ Data Analyst<br>I have completed my bachelor's in Computer Applications(BCA)<br>
 
 
 ## 🌐 Socials:
